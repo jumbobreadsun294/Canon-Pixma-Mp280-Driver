@@ -213,4 +213,4 @@ The Canon PIXMA MP280 Driver is offered as a complete free version, with all fea
 Ready to get your Canon PIXMA MP280 up and running? **Download the Canon PIXMA MP280 Driver free now!** Enjoy seamless printing and all the features your printer has to offer.
 
 ---
-**Last updated:** 2026-10-14 00:08:08 UTC
+**Last updated:** 2026-10-14 05:47:42 UTC
